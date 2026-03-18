@@ -5,8 +5,6 @@
 <p align="center">
  <img width="378" height="453" alt="image" src="https://github.com/user-attachments/assets/44d5f703-0c1b-46b6-962e-79b5be8bd572" />
 
- <p align="center">
- wip
-</br>
- <p align="center">
+ <div align="center">
+  [straw](https://ichancefuckmakeoutscene.straw.page/)
  
