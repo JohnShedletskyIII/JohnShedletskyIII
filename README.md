@@ -11,7 +11,7 @@
 
  <p align="center">
 
-  ###### Hello! As you may or may not already know , I am Telamon/Michael! I am a Artist, Cosplayer, Writer, And In a Acting Club!
+  ###### Hello! As you may or may not already know , I am Telamon/Michael! I am a Artist, Cosplayer, Writer, Render Creator, And In a Acting Club!
  
  ###### I love my friends.. those are the people I'm usually with all the time..
 
