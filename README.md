@@ -24,7 +24,7 @@
 
  ###### Interests.
 
- ###### Forsaken, Dbz, Hello john doe, DOD, Roblox Args, Searching for another world, tpc, Bad things, Roblox admins, The last guest, Hazbin Hotel, Spooky month, Phighting, Eddsworld, Ultrakill, Randals Friends, Dsaf, Minesweeper plus, Guts & Blackpowder, Regretevator, Blocktales, Save Robloxia, Roblox Pyschological horror games (I mightve worded that wrong.), Grace, Sonic, Sonic.exe, Deltarune, DDLC, Gorillaz, Mouthwashing, PMM, Villanous, Slasher movies, MCSM, It welcome to derry, JJK, Starters, OSC, Welcome home, Chiikawa, MK1, Ppt, BrawlR, Pressure, Doors, Dream Game, FNAF, Bendy and the ink machine, Cuphead, MOTM, Roblox hackers, Roblox myths, Creepypastas, Roblox devs, Hetalia.
+ ###### Forsaken, Dbz, Hello john doe, DOD, Roblox Args, Searching for another world, tpc, Bad things, Roblox admins, The last guest, Hazbin Hotel, Spooky month, Phighting, Eddsworld, Ultrakill, Randals Friends, Dsaf, Minesweeper plus, Guts & Blackpowder, Regretevator, Blocktales, Save Robloxia, Roblox Pyschological horror games (I mightve worded that wrong.), Grace, Sonic, Sonic.exe, Deltarune, DDLC, Gorillaz, Mouthwashing, PMM, Villanous, Slasher movies, MCSM, It welcome to derry, JJK, Starters, OSC, Welcome home, Chiikawa, MK1, Ppt, BrawlR, Pressure, Doors, Dream Game, FNAF, Bendy and the ink machine, Cuphead, MOTM, Roblox hackers, Roblox myths, Creepypastas, Roblox devs, Hetalia, Ramshackle, Alienstage.
 
  <div align="center">
  <img width="350" height="66" alt="image" src="https://github.com/user-attachments/assets/a0dc862c-1d97-4d96-bd54-15a2f6ec2202" />
