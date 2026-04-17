@@ -29,7 +29,7 @@
 
  ###### Byi/Dni.
  
- ###### I do not have a dni list aslong as you aren't under 13 or over 18 or a terrible mouse fan, I block whoever I want and whenever I want. I can be rude at times but that depends on my mood or if my social battery is gone. I have terrible english though it is my first language, but I promise you somethings i miss spell is on purpose. This was conveyed already but, I'm very introverted so if you want a conversation you will have to come to me first.
+ 🏖 :: basic criteria, 12> (iwec.) and adults. terrible mouse, creeps, pro/com/dark/shippers, MOST forsaken and dandys world fans dniuid. | Becomes more strict if we become friends. | I can be rude at times but that depends on my mood or if my social battery is gone. I have terrible english though it is my first language, but I promise you somethings i miss spell is on purpose. This was conveyed already but, I'm very introverted so if you want a conversation you will have to come to me first.
 
 
 
