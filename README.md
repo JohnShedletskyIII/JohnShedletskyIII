@@ -2,8 +2,7 @@
 
 <div align="center">
 
-
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Combo&size=18&duration=2000&pause=500&color=363636&center=true&width=435&lines=%22+And+if+we+go+some+place+to+dance%2C+%22;%22+I+know+there+is+a+chance+that-+%22;%22+You+wont+be+leaving+with+me.+%22;%22+Then+afterwards+we+drop+into-+%22;%22+a+little+quiet+place+and+have+a+drink+or+two.+%22;%22+And+then+I+go+spoil+it+all-+%22+;%22+saying+somthin'+stupid+like+%22+I+love+you.+%22+%22" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Combo&size=18&duration=2000&pause=50&color=464646&center=true&width=435&lines=%22+When+I+grow+up..+(When+I+grow+up..)-;I+will+be+strong+enough+to+carry+all+the-+;heavy+things+you+have+to+haul-;around+with+you+when+I'm+grown+up%2C;And+when+I'm+grown+up%2C+I+will+be-;strong+enough+to+fight+the+creautres-;that+you+fight+beneath+the+bed;each+night+to+be+a+grown+up.+%22" alt="Typing SVG" /></a>
 
 <img width="350" height="66" alt="image" src="https://github.com/user-attachments/assets/a0dc862c-1d97-4d96-bd54-15a2f6ec2202" />
 
